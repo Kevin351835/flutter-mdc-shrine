@@ -1,0 +1,1 @@
+Saya memilih warna dasar biru karena merepresentasikan teknologi dan profesionalisme. Dari sisi user, warna biru secara psikologis memberikan rasa yang tenang dan dapat membangun kepercayaan saat melakukan transaksi dan meningkatkan kenyamanan dalam berbelanja.
